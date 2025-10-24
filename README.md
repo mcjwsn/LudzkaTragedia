@@ -1,1 +1,3 @@
 # chatgpt_training
+
+Cena za popierdolenie jednego laba: 6.90zl, przelew proszę kierować na numer 660 939 866
